@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @safindimok
 - 👀 I’m interested in ..world of tanks
 - 📫 How to reach me discord asdeq_2024_66557
-- 😄 Pronouns: ...
+- 😄 Pronouns:nothing
 - ⚡ Fun fact:I'm furry
 
 <!---
